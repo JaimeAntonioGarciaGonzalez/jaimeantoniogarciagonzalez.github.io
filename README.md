@@ -1,1 +1,0 @@
-# jaimeantoniogarciagonzalez.github.io
